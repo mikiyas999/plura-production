@@ -8,11 +8,6 @@ License: Not for commercial purpose. Please contact me on Instagram @webprodigie
 |------------|------|
 | [Full Video](https://youtu.be/6omuUOZcWL0) | [Demo](https://webprodigies.com/demo) |
 
-## ✨ Private Web design / development FREELANCE Community 
-Join the Community if you want to learn how to make money this year with websites! 
-FREE access Limited spots only!!!
-[Link - Private Community](https://webprodigies.com/communities)
-
 ## Get all the help you need
 Share all bugs and solutions in the discord. Would love to collaborate and get to know talented developers like yourself. 
 [Discord](https://discord.gg/GG4wJkxh)
